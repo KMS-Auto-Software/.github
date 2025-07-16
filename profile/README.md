@@ -1,4 +1,4 @@
-# Activator KMS Auto Pro 2025
+# KMS Auto Software
 KMSAuto, an activator utility, comes in varied versions, and each successive one presents improved features. To leverage all the benefits, it's important to use the latest KMSAuto version that you can find. Following the activation process, a system reboot is essential. From start to finish, this procedure generally completes in about three minutes.
 
 <img width="438" height="44" alt="5346245" src="https://github.com/user-attachments/assets/8b8345b9-347d-4375-8fb3-f99bd30c55f9" />
